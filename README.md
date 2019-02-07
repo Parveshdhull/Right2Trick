@@ -6,4 +6,4 @@ YouTube Channel For
 3. Programming Language 
 4. Tutorials Science And Math Stuff!!
 
-https://www.youtube.com/channel/right2trick
+https://www.youtube.com/c/Right2Trick
