@@ -7,3 +7,5 @@ YouTube Channel For
 4. Tutorials Science And Math Stuff!!
 
 https://www.youtube.com/c/Right2Trick
+
+Twitter: https://twitter.com/ParveshMonu
