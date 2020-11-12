@@ -6,6 +6,11 @@ YouTube Channel For
 3. Programming Language 
 4. Tutorials Science And Math Stuff!!
 
-https://www.youtube.com/c/Right2Trick
+## Liked my work?
+<a href="https://www.buymeacoffee.com/parveshmonu" target="_blank"><img src="https://www.buymeacoffee.com/assets/img/custom_images/orange_img.png" alt="Buy Me A Coffee" style="height: 41px !important;width: 174px !important;box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;-webkit-box-shadow: 0px 3px 2px 0px rgba(190, 190, 190, 0.5) !important;" ></a>
 
-Twitter: https://twitter.com/ParveshMonu
+## Websites
+https://github.com/Parveshdhull
+<br />https://twitter.com/ParveshMonu
+<br />https://youtube.com/right2trick
+
