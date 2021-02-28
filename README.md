@@ -1,4 +1,3 @@
-# Right2Trick
 ![channels4_banner](https://user-images.githubusercontent.com/17097240/109414672-1bbaf200-79da-11eb-8ec4-b7b203d080f5.jpg)
 
 # YouTube Channel 
